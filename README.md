@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @iw-slo
 - 👀 I’m interested in building and growing digital businesses, creating efficient workflows,  productivity hacks, intentional decision making
 - 🌱 I’m currently learning slos, error budgets, the cloud
-- 💞️ I’m looking to collaborate on go-to-market strategies for digital businesses
+- 💞️ I’m looking to collaborate on go-to-market strategies for digital businesses, new business ideas
 - 📫 How to reach me -> dm 
 
 deep belief in self, trust in others, freedom of thought, open communication, need for community and creative, intentional living
